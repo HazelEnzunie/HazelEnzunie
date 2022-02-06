@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Hazel
+- 👀 I’m interested in art
+- 🌱 I’m currently learning how to make friend ^^
+- 💞️ I’m looking to collaborate on(idk-)
